@@ -1,1 +1,0 @@
-# Gamata_M_Tiangson_C_LOLCODE
